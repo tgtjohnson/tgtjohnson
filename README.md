@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @tgtjohnson
+- 👋 Hi, I’m Theophilus
 - 👀 I’m interested in anything tech and living life.
 - 🌱 I’m currently learning about life and tech.
 - 💞️ I’m looking to collaborate on life and tech.
